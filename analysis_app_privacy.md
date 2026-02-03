@@ -35,4 +35,4 @@
 連絡先：beatluvakaakira@gmail.com
 
 ---
-2026年1月26日 改定
+2026年2月3日 改定
